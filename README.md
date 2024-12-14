@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning programming
 - 🤔 I’m looking for help with other
 - 💬 Ask me about tech
-- 😄 Pronouns: abofathi
+- 😄 Pronouns: abofathi0x
 -->
