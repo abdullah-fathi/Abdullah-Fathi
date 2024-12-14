@@ -10,4 +10,3 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with other
 - 💬 Ask me about tech
 - 😄 Pronouns: abofathi0x
--->
